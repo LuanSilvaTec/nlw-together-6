@@ -1,1 +1,0 @@
-# nlw-together-6
